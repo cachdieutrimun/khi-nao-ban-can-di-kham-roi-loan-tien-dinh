@@ -35,7 +35,7 @@ Hiểu được nổi khổ và lo lắng của khách hàng, tại đây – La
 - [ ] Giao hàng tận nơi trong 24h
 - [ ] Hoàn lại tiền nếu không có kết quả.
 
-Tham khảo thông tin chi tiết tại website: https://roiloantiendinh.com/
+Tham khảo thông tin chi tiết tại website: roiloantiendinh.com
 
 CHÚNG TÔI CAM KẾT SẼ ĐEM LẠI CHO BẠN MỘT KẾT QUẢ XỨNG ĐANG SAU KHI SỬ DỤNG SẢN PHẨM
 HÃY để lại số điện thoại – để các dược sĩ của chúng tôi gọi đến tư vấn và giải đáp mọi thắc mắc https://roiloantiendinh.com/lien-he/
